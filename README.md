@@ -7,7 +7,7 @@
 ╚═════╝  ╚═╝  ╚═╝ ╚═╝ ╚═╝  ╚═╝
 ```
 
-**IT CONSULTANT OR DEVELOPER**
+**IT CONSULTANT || DEVELOPER**
 
 📍 **Location:** Tunis, Tunisia  
 🏢 **Company:** Speedykom  
